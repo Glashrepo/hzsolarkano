@@ -1,0 +1,1 @@
+c:\Users\NEWTON'S ACADEMY\Pictures\IMG_20240214_123637_277.jpg
